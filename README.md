@@ -1,4 +1,4 @@
-# UoL SoCS Showcase 2020 - 9th - 11th October 2020
+# UoL SoCS Showcase 2020 - 9th-11th November 2020
 
 ## Student Engagement
 
